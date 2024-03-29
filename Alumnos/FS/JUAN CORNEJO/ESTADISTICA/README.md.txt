@@ -1,1 +1,0 @@
-Trabajo realizado por Lucía Esteve, Mar Pons y Juan Cornejo, alumnos del Master Data de FS.
